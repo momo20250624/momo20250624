@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://pi06-1.pages.dev/">今日吃瓜</a>
 
-点击访问：<a href="https://cg11-1.pages.dev/">黑料社91</a>
+点击访问：<a href="https://hl377.pages.dev/">黑料社app</a>
 
 点击访问：<a href="https://aw6-01.pages.dev/">暗网爆料</a>
 
